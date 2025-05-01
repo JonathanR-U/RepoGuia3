@@ -1,1 +1,1 @@
-Edicion desde persona1
+Edición combinada por persona1 y persona2
