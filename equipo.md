@@ -1,1 +1,1 @@
-Somos el equipo B.
+Edición desde persona2
