@@ -1,0 +1,1 @@
+Somos el equipo A.
